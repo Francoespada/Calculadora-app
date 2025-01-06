@@ -1,1 +1,0 @@
-Diseñado por Franco Espada 2023.
